@@ -56,10 +56,11 @@ Ingredients:
 - 1/2 cup bread crumbs
 - 1/4 cup milk
 - 1/4 cup grated Parmesan cheese
-- 1 egg
+- 25 egg
 - 2 cloves garlic, minced
 - Salt and pepper to taste
-- 1 jar (24 oz) spaghetti sauce
+- 5 jar (24 oz) spaghetti sauce
+- Rabbits foot
 
 Instructions:
 1. Cook spaghetti according to package instructions.
@@ -81,6 +82,8 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- BBQ Sauce
+- Truffle oil
 
 Instructions:
 1. Preheat grill to medium-high heat.
