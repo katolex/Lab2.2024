@@ -114,3 +114,17 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Rainbow Sandwiches
+
+Ingredients:
+- 4 slices of white bread
+- 4 tbsp Butter
+- 1/2 cup Rainbow Sprinkles
+
+Instructions:
+1. Cut edges off the white bread
+2. Apply butter to bread on one side
+3. Stick rainbow sprinkles to buttered sides of bread
+4. Put the slices together to make sandwiches
+5. Cut them in half to make them presentable for high tea.
