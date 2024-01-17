@@ -82,6 +82,8 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- BBQ Sauce
+- Truffle oil
 
 Instructions:
 1. Preheat grill to medium-high heat.
