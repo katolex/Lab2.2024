@@ -56,10 +56,11 @@ Ingredients:
 - 1/2 cup bread crumbs
 - 1/4 cup milk
 - 1/4 cup grated Parmesan cheese
-- 1 egg
+- 25 egg
 - 2 cloves garlic, minced
 - Salt and pepper to taste
-- 1 jar (24 oz) spaghetti sauce
+- 5 jar (24 oz) spaghetti sauce
+- Rabbits foot
 
 Instructions:
 1. Cook spaghetti according to package instructions.
@@ -114,3 +115,4 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
